@@ -28,7 +28,7 @@
 
 ## 🌐 Connect with me
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-blue?style=for-the-badge&logo=linkedin)](https://www.linkedin.com/in/yourusername/)  
-📫 **Email:** rohailkhattak@email.com  
+📫 **Email:** rohailkhattak197@email.com  
 
 ---
 
